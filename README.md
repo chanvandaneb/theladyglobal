@@ -1,2 +1,0 @@
-# theladyglobal
-lady online shop
